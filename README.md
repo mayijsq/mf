@@ -26,8 +26,5 @@
 [永久地址](https://lightyearvpn.com/?invite_code=JJq7YD6qo4B)
 
 
-ulkr74yoy67d@163.com----vk806475----黑洞
-db3wr4@163.com----hiy787----雷霆
-avonjc@163.com----ydj970----蚂蚁
 
 
